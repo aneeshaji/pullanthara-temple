@@ -1,1 +1,1 @@
-# iPullanthara Sree Maha Ganapathy Temple Website
+# Pullanthara Sree Maha Ganapathy Temple Website
