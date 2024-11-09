@@ -1,2 +1,1 @@
-# pullanthara-temple
-Pullanthara Temple Website
+# infotek
