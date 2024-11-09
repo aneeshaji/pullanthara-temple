@@ -1,1 +1,1 @@
-# infotek
+# iPullanthara Sree Maha Ganapathy Temple Website
